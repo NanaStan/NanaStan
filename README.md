@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NanaStan
-- 👀 I'm and ESL Teacher
+- 👀 I'm an ESL Teacher
 - 🌱 I’m mainly specialise in coversational English
 - 💞️ I’m looking to help people from all works of life in mastery of the English language
 - 📫 How to reach me ...nancystanslousmtetwa@gmail.com
